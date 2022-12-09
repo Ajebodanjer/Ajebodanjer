@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ajebodanjer
+- 👀 I’m a tech blogger
+- 💯 you can reach me at https://hustlefar.com
